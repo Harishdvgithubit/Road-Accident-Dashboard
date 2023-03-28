@@ -20,7 +20,7 @@ Retrieved from the work:
 2.	2021 Casualties are more like Accident Severity, Road type, Road    Suface, Location and mostly in Urban Areas are more. 
 3.	Car Vehicle have more Accident Compare to Other Vehicles.
 
-
+Link :https://1drv.ms/x/s!Auy99rYIa02yhF8Dv6gZl4YSfShr
 
 
 
